@@ -6,7 +6,7 @@
  * Script :  Made By Anggazyy ❤😁
  * Script : Di lindungi dengan ketat !
  * Note : This script not for free, hargai creator.
- * Thanks To ❤ : Saqioo, Hanmood, Anggazyy, Zaenshi 
+ * Thanks To ❤ : Saqioo 🦊, Hanmood, Anggazyy, Zaenshi 
  * Terimakasih telah berkontribusi di script ini :)
  * Owner utama : https://t.me/anggazyydev
  * Saluran Saya : https://whatsapp.com/channel/0029VakZidSIXnlmikWIgS1z
